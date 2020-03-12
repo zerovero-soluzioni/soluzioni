@@ -4,7 +4,7 @@
 ???<br>
 ???<br>
 ???<br>
-???<br>
+???
 
 #### ???
 
@@ -23,7 +23,7 @@ Legge<br>
 Disegno<br>
 Squadra<br>
 Formazione<br>
-Pratica<br>
+Pratica
 
 #### Evasione
 
