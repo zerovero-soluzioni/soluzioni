@@ -1,4 +1,20 @@
-### Catena di oggi 16 Marzo:
+### Catena di oggi 17 Marzo:
+Classe<br>
+Politica<br>
+Carta<br>
+Verde<br>
+Speranza<br>
+Alimentare<br>
+#### Regime
+Motore<br>
+Olio<br>
+Lampada<br>
+Wood<br>
+Ed<br>
+Sheeran
+
+
+### Catena del 16 Marzo:
 Personale<br>
 Difesa<br>
 Linea<br>
