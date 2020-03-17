@@ -4,10 +4,8 @@ Difesa<br>
 Linea<br>
 Servizio<br>
 Civile<br>
-Parte
-
+Parte<br>
 #### Spirito
-
 Presenza<br>
 Bella<br>
 Notte<br>
@@ -22,10 +20,8 @@ Madre<br>
 Ragazza<br>
 Copertina<br>
 Prezzo<br>
-Giusto
-
+Giusto<br>
 #### Sonno
-
 Debito<br>
 Tempo<br>
 Lupi<br>
@@ -40,10 +36,8 @@ Pasta<br>
 Sale<br>
 Marcia<br>
 Tabella<br>
-Verbi
-
+Verbi<br>
 #### Ausiliari
-
 Polizia<br>
 Stato<br>
 Materia<br>
@@ -59,10 +53,8 @@ Legge<br>
 Disegno<br>
 Squadra<br>
 Formazione<br>
-Pratica
-
+Pratica<br>
 #### Evasione
-
 Romanzo<br>
 Cuore<br>
 Notte<br>
