@@ -1,4 +1,21 @@
-### Catena di oggi 17 Marzo:
+#### Catena di oggi 19 Marzo:
+
+Tennista<br>
+Gomito<br>
+Olio<br>
+Quadro<br>
+Punto<br>
+Incontro<br>
+#### Colpo
+Occhio<br>
+Terzo<br>
+Grado<br>
+Capitano<br>
+Fascia<br>
+Prezzo
+
+
+### Catena del 17 Marzo:
 Classe<br>
 Politica<br>
 Carta<br>
