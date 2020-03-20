@@ -1,4 +1,21 @@
-#### Catena di oggi 19 Marzo:
+#### Catena di oggi 20 Marzo:
+
+Classica<br>
+Cultura<br>
+Fisica<br>
+Persona<br>
+Stile<br>
+Libero<br>
+#### Corpo
+Carattere<br>
+Uomo<br>
+Volante<br>
+Asso<br>
+Manica<br>
+Vento
+
+
+#### Catena del 19 Marzo:
 
 Tennista<br>
 Gomito<br>
