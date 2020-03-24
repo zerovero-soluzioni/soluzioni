@@ -1,4 +1,21 @@
-#### Catena di oggi 23 Marzo:
+#### Catena di oggi 24 Marzo:
+
+Pro<br>
+Memoria<br>
+Giorno<br>
+Zona<br>
+Blu<br>
+Sangue<br>
+#### Riso
+Carta<br>
+Debito<br>
+Promessa<br>
+Giovane<br>
+Vino<br>
+Dioniso
+
+
+#### Catena del 23 Marzo:
 
 Ginnastica<br>
 Camera<br>
