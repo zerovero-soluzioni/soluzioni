@@ -1,4 +1,21 @@
-#### Catena di oggi 24 Marzo:
+#### Catena di oggi 25 Marzo:
+
+Obbedienza<br>
+Voto<br>
+Fiducia<br>
+Persona<br>
+Scambio<br>
+Linguistico<br>
+#### Prestito
+Giocatore<br>
+Scacchi<br>
+Bandiera<br>
+Porta<br>
+Santa<br>
+Petronilla
+
+
+#### Catena del 24 Marzo:
 
 Pro<br>
 Memoria<br>
