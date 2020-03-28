@@ -1,4 +1,21 @@
-#### Catena di oggi 25 Marzo:
+#### Catena del 27 Marzo:
+
+Psiche<br>
+Amore<br>
+Plastica<br>
+Sacchetto<br>
+Lavanda<br>
+Piedi<br>
+#### Letto
+Insalata<br>
+Funghi<br>
+Regno<br>
+Cavallo<br>
+Vapore<br>
+Verdure
+
+
+#### Catena del 25 Marzo:
 
 Obbedienza<br>
 Voto<br>
