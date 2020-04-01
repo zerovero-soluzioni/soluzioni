@@ -1,4 +1,21 @@
-#### Catena di oggi 31 Marzo:
+#### Catena di oggi 1 Aprile:
+
+Buone<br>
+Intenzioni<br>
+Processo<br>
+Verbale<br>
+Tempo<br>
+Posa<br>
+#### Sala
+Personale<br>
+Titolo<br>
+Studio<br>
+Rosso<br>
+Libretto<br>
+Opera
+
+
+#### Catena del 31 Marzo:
 
 Artiglieria<br>
 Pezzo<br>
