@@ -1,4 +1,21 @@
-#### Catena di oggi 1 Aprile:
+#### Catena di oggi 10 Aprile:
+
+Matrimonio<br>
+Partecipazione<br>
+Condizioni<br>
+Critiche<br>
+Impermeabile<br>
+Giacca<br>
+#### Chiodo
+Roccia<br>
+Lana<br>
+Misto<br>
+Doppio<br>
+Taglio<br>
+Brillante
+
+
+#### Catena del 1 Aprile:
 
 Buone<br>
 Intenzioni<br>
