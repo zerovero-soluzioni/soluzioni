@@ -1,4 +1,21 @@
-#### Catena di oggi 10 Aprile:
+#### Catena di oggi 20 Aprile:
+
+Tre<br>
+Grazie<br>
+Fiori<br>
+Corona<br>
+Svedese<br>
+Quadro<br>
+#### Legge
+Uomo<br>
+Misura<br>
+Volume<br>
+Traffico<br>
+Dati<br>
+Banca
+
+
+#### Catena del 10 Aprile:
 
 Matrimonio<br>
 Partecipazione<br>
