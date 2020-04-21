@@ -1,4 +1,21 @@
-#### Catena di oggi 20 Aprile:
+#### Catena di oggi 21 Aprile:
+
+Segnale<br>
+Orario<br>
+Chilometro<br>
+Zero<br>
+Doppio<br>
+Fine<br>
+#### Corsa
+Passo<br>
+Falso<br>
+Piano<br>
+Cottura<br>
+Sangue<br>
+Ultimo
+
+
+#### Catena del 20 Aprile:
 
 Tre<br>
 Grazie<br>
