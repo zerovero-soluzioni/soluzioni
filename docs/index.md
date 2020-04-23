@@ -1,4 +1,21 @@
-#### Catena di oggi 22 Aprile:
+#### Catena di oggi 23 Aprile:
+
+Catenella<br>
+Punto<br>
+Messa<br>
+Opera<br>
+Aria<br>
+Festa<br>
+#### Corti
+Ferri<br>
+Carne<br>
+Viva<br>
+Libertà<br>
+Opinione<br>
+Quotidiano
+
+
+#### Catena del 22 Aprile:
 
 Terra<br>
 Pilastri<br>
