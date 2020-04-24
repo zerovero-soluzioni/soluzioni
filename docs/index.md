@@ -1,4 +1,21 @@
-#### Catena di oggi 23 Aprile:
+#### Catena di oggi 24 Aprile:
+
+Perdita<br>
+Occhio<br>
+Fine<br>
+Mondo<br>
+Bene<br>
+Protetto<br>
+#### Ambiente
+Divisione<br>
+Operazione<br>
+Commerciale<br>
+Centro<br>
+Attenzione<br>
+Prestare
+
+
+#### Catena del 23 Aprile:
 
 Catenella<br>
 Punto<br>
