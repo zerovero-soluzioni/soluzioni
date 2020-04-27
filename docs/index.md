@@ -1,4 +1,21 @@
-#### Catena di oggi 24 Aprile:
+#### Catena di oggi 27 Aprile:
+
+Lavatrice<br>
+Programma<br>
+Apollo<br>
+Dio<br>
+Denaro<br>
+Contributo<br>
+#### Mantenimento
+Dieta<br>
+Imperiale<br>
+Altezza<br>
+Base<br>
+Casa<br>
+Produzione
+
+
+#### Catena del 24 Aprile:
 
 Perdita<br>
 Occhio<br>
