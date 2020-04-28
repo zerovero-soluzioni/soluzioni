@@ -1,4 +1,21 @@
-#### Catena di oggi 27 Aprile:
+#### Catena di oggi 28 Aprile:
+
+Valzer<br>
+Ritmo<br>
+Pieno<br>
+Diritto<br>
+Civile<br>
+Guerra<br>
+#### Piede
+Quadrato<br>
+Poligono<br>
+Tiro<br>
+Effetto<br>
+Serra<br>
+Valle
+
+
+#### Catena del 27 Aprile:
 
 Lavatrice<br>
 Programma<br>
