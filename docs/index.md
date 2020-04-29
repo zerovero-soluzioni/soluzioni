@@ -1,4 +1,21 @@
-#### Catena di oggi 28 Aprile:
+#### Catena di oggi 29 Aprile:
+
+Accordo<br>
+Nona<br>
+Porta<br>
+Fortuna<br>
+Campo<br>
+Via<br>
+#### Amichevole
+Incontro<br>
+Punto<br>
+Fusione<br>
+Societa<br>
+Massa<br>
+Felipe
+
+
+#### Catena del 28 Aprile:
 
 Valzer<br>
 Ritmo<br>
