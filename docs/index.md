@@ -1,4 +1,21 @@
-#### Catena di oggi 29 Aprile:
+#### Catena di oggi 30 Aprile:
+
+Village<br>
+Greenwich<br>
+Osservatorio<br>
+Culturale<br>
+Bagaglio<br>
+Mano<br>
+#### Portata
+Fiume<br>
+Delfino<br>
+Francia<br>
+Campagna<br>
+Basilea<br>
+Zoo
+
+
+#### Catena del 29 Aprile:
 
 Accordo<br>
 Nona<br>
