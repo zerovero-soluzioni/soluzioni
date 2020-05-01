@@ -1,4 +1,21 @@
-#### Catena di oggi 30 Aprile:
+#### Catena del 1 Maggio:
+
+Up<br>
+Pin<br>
+Codice<br>
+Civile<br>
+Protezione<br>
+Conchiglia<br>
+#### Cellulare
+Tessuto<br>
+Trama<br>
+Film<br>
+Costume<br>
+Triangolo<br>
+Bermude
+
+
+#### Catena del 30 Aprile:
 
 Village<br>
 Greenwich<br>
