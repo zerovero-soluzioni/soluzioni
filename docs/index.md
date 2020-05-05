@@ -1,3 +1,20 @@
+### Catena del 5 Maggio:
+
+Dopo<br>
+Guerra<br>
+Arte<br>
+Galleria<br>
+Base<br>
+Dati<br>
+#### Trattamento
+Chimico<br>
+Cantonale<br>
+Via<br>
+Fuga<br>
+Punto<br>
+Bianco
+
+
 ### Catena del 4 Maggio:
 
 Richiamo<br>
