@@ -1,3 +1,20 @@
+### Catena dell'8 Maggio:
+
+Verde<br>
+Freccia<br>
+Scoccare<br>
+Mezzanotte<br>
+Messa<br>
+Norma<br>
+#### Cima
+Fondo<br>
+Perduto<br>
+Mondo<br>
+Visione<br>
+Insieme<br>
+Mina
+
+
 ### Catena del 6 Maggio:
 
 Tuffo<br>
