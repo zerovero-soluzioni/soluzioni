@@ -1,3 +1,20 @@
+### Catena dell'11 Maggio:
+
+Piatti<br>
+Piedi<br>
+Posto<br>
+Guardia<br>
+Vecchia<br>
+Conoscenza<br>
+#### Presa
+Sale<br>
+Pepe<br>
+Tutto<br>
+Tratto<br>
+Distintivo<br>
+Polizia
+
+
 ### Catena dell'8 Maggio:
 
 Verde<br>
