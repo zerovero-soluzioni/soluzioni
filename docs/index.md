@@ -1,3 +1,20 @@
+### Catena del 12 Maggio:
+
+Avatar<br>
+Pandora<br>
+Vaso<br>
+Terracotta<br>
+Esercito<br>
+Salvezza<br>
+#### Matematica
+Opinione<br>
+Liberale<br>
+Stato<br>
+Aggregazione<br>
+Luogo<br>
+Avverbio
+
+
 ### Catena dell'11 Maggio:
 
 Piatti<br>
