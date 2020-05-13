@@ -1,3 +1,20 @@
+### Catena del 13 Maggio:
+
+incendio<br>
+principio<br>
+tossico<br>
+titolo<br>
+signore<br>
+parola<br>
+#### Data
+base<br>
+musicale<br>
+commedia<br>
+umana<br>
+condizione<br>
+fisica
+
+
 ### Catena del 12 Maggio:
 
 Avatar<br>
