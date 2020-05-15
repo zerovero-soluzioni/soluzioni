@@ -1,3 +1,20 @@
+### Catena del 15 Maggio:
+
+Prezzi<br>
+Guerra<br>
+Elefante<br>
+Barrito<br>
+Mystic<br>
+Pizza<br>
+#### Metro
+Quadro<br>
+Cornice<br>
+Narrativa<br>
+Genere<br>
+Alimentare<br>
+Sospetto
+
+
 ### Catena del 14 Maggio:
 
 Goccia<br>
