@@ -1,3 +1,20 @@
+### Catena del 18 Maggio:
+
+Piora<br>
+Formaggio<br>
+Fresco<br>
+Rosa<br>
+Nome<br>
+Arte<br>
+#### Storico
+Presente<br>
+Tempo<br>
+Libero<br>
+Mercato<br>
+Analisi<br>
+Ultima
+
+
 ### Catena del 15 Maggio:
 
 Prezzi<br>
