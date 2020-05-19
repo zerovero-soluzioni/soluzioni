@@ -1,3 +1,20 @@
+### Catena del 19 Maggio:
+
+Fine<br>
+Millennio<br>
+Terzo<br>
+Occhio<br>
+Tigre<br>
+Uomo<br>
+#### Caccia
+Aereo<br>
+Spazio<br>
+Archiviazione<br>
+Pratica<br>
+Filosofia<br>
+Spicciola
+
+
 ### Catena del 18 Maggio:
 
 Piora<br>
