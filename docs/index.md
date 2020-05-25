@@ -1,3 +1,20 @@
+### Catena del 25 Maggio:
+
+Verde<br>
+Polmone<br>
+Acciaio<br>
+Muscoli<br>
+Scalda<br>
+Bagno<br>
+#### Vapore
+Forno<br>
+Guanto<br>
+Rugby<br>
+Sette<br>
+Ticino<br>
+Valle
+
+
 ### Catena del 22 Maggio:
 
 San Pietro<br>
