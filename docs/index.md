@@ -1,3 +1,20 @@
+### Catena del 26 Maggio:
+
+Recitare<br>
+Preghiera<br>
+Tappeto<br>
+Musicale<br>
+Momento<br>
+Dato<br>
+#### Meta
+Linea<br>
+Massima<br>
+Pressione<br>
+Bar<br>
+Piano<br>
+Cottura
+
+
 ### Catena del 25 Maggio:
 
 Verde<br>
