@@ -1,3 +1,20 @@
+### Catena del 31 Maggio:
+
+Autore<br>
+Diritto<br>
+Esercizio<br>
+Fisico<br>
+Fenomeno<br>
+Costume<br>
+#### Epoca
+Oro<br>
+Corsa<br>
+Speranza<br>
+Vita<br>
+Coppia<br>
+Poker
+
+
 ### Catena del 26 Maggio:
 
 Recitare<br>
