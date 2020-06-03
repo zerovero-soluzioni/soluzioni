@@ -1,3 +1,20 @@
+### Catena del 3 Giugno:
+
+Assistente<br>
+Sociale<br>
+Ragione<br>
+Eta<br>
+Bronzo<br>
+Faccia<br>
+#### Scritto
+Mano<br>
+Poker<br>
+Scala<br>
+Beaufort<br>
+Formaggio<br>
+Coltello
+
+
 ### Catena del 31 Maggio:
 
 Autore<br>
